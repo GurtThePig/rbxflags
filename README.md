@@ -9,6 +9,8 @@
 
 <div align="center">
 
+<h5 align="center">https://discord.gg/HNe7fzR9xg</h5>
+
 `12.27.24`
 
 <h3 align="center">HE'S COMING</h3>
